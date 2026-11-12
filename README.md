@@ -2,3 +2,8 @@
 User Software subject on College of Polytechnics in Jihlava
 
 I choose VERZOVACÍ SOFTWARE
+
+
+Dobrý den,
+téma seminární práce máte schváleno
+Hana Vojáčková
